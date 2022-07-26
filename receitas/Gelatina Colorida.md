@@ -3,8 +3,8 @@
 ### Ingredientes
 
 - 5 caixinhas de gelatina de diferentes sabores (eu usei limão, abacaxi, cereja, tutti-fruti e uva)
-- 2 caixinhas de [creme de leite](https://blog.tudogostoso.com.br/dicas-de-cozinha/creme-de-leite-fresco-caseiro-de-caixinha-e-mais/) (400 g)
-- 1 lata de [leite condensado](https://blog.tudogostoso.com.br/cardapios/receitas-faceis/como-fazer-leite-condensado-caseiro/)
+- 2 caixinhas de creme de leite (400 g)
+- 1 lata de leite condensado
 - 1 envelope de gelatina em pó sem sabor (incolor) 
 
 
